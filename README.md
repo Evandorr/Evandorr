@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Evandorr
-- 👀 I’m interested in video games
+- 👀 I’m interested in game dev
 - 🌱 I’m currently learning coding ig
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me: don't
