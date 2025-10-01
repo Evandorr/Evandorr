@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Evandorr
 - 👀 I’m interested in game dev
 - 🌱 I’m currently learning game developement
-- 📫 How to reach me? Message me on discord: evandor
+- 📫 How to reach me? Don't
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Dolphins are terrible
 
